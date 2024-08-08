@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @1XCUP1DX1
+- 👀 I’m interested in playing sports!
+- 🌱 I’m currently learning about God
+- 😄 Pronouns: She / Her
+- ⚡ Fun fact: I play basketball!
